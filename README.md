@@ -1,1 +1,0 @@
-# lesson_2_likha_ugat
